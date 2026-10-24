@@ -1,1 +1,1 @@
-https://github.com/spece3000/ono-tebe-nado-ad
+https://github.com/ALangley2007/ono-tebe-nado
